@@ -7,4 +7,4 @@ Use se quiser.
 
 ![](https://viajantehu.hotelurbano.com.br/wp-content/uploads/2018/06/chica_doida4.jpg)
 
-Chica doida > pamonha
+Chica doida != pamonha
